@@ -8,4 +8,6 @@ I dont' have time now, but certainly would love to work on this in the future. A
 
 Cheers
 
-W
+~W
+
+reach out at minilanguage@karsens.com
